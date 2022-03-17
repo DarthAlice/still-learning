@@ -1,0 +1,1 @@
+These are what I think are the best projects I've made while learning. If I'm goin through a course and doing all of the course projects and something inspires me to try something a little off course or if it's a course project that I'm proud of. Let it be known I AM STILL NEW TO PROGRAMING.  
